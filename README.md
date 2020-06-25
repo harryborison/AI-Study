@@ -1,1 +1,1 @@
-AI_STUDY 
+AI_STUD 
